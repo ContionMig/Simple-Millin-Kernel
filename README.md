@@ -8,4 +8,4 @@ My goals isnt to release a complete cheat ( if this gets enough support, i will 
 
 Just a thing i am trying to do, testing some things out and so on. This is for a game called csgo and basically are for people how knows what they are doing.
 
- If you like to donate to show your support, go ahead. Paypal: theherobrine9@gmail.com
+ If you like to donate to show your support, go ahead. Paypal: anthonywong35712@gmail.com
