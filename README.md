@@ -1,4 +1,4 @@
-# SagaanTheEpic-Millin-Hack-SMH-Kernel
+# Simple Millin Kernel Cheat
 [[My Website]](https://mitsuzi.xyz/)
 
 # Important: 
